@@ -10,4 +10,11 @@ Parts:
 6. Electrical socket 5A 3 pin x 2
 7. Electrical Plug 5A 3 pin x 1
 
+
+Mylar sheet:
+
+http://www.gkudyog.in/contact-gk-udyog.htm
+
+http://www.skillsupplies.com/
+
  
